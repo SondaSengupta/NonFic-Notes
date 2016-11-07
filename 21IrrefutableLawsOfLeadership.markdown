@@ -17,6 +17,18 @@ We add value to others when we:
 
 # 6 - The Law of Solid Ground: Trust is the Foundation of Leadership
 
+Trust is the most important thing and the foundation of leadership, the glue that holds an organization together.
+
+"Your people know when you make mistakes. The real question is whether you're going to fess up. If you do, you can often regain their trust."
+
+Trust is like change in a leader's pocket. Each time you make good decisions, you earn more change. Bad ones, take away change. If leaders make on bad decision after another, they keep paying out change, until at last it's too late, and you're out as a leader. In contrast, good leaders who have a record of wins build up change, and even after a huge blunder, they have plenty of leftover change and can regain trust quickly.
+
+Build trust by consistently exemplifying competence, connection, and character. "People tolerate honest mistakes, but if you violate their trust, it is difficult to regain confidence. You may fool your boss but you can never fool your colleagues and subordinates." Character makes trust possible. Character communicates consistency through inner strength that can be counted on day after day. Character communicates potential. Weak character is limiting and good character has greater potential. Character communicates respect.
+
+
+
+
+
 
 
 
