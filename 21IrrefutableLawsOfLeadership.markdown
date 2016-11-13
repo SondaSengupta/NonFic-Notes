@@ -25,6 +25,44 @@ Trust is like change in a leader's pocket. Each time you make good decisions, yo
 
 Build trust by consistently exemplifying competence, connection, and character. "People tolerate honest mistakes, but if you violate their trust, it is difficult to regain confidence. You may fool your boss but you can never fool your colleagues and subordinates." Character makes trust possible. Character communicates consistency through inner strength that can be counted on day after day. Character communicates potential. Weak character is limiting and good character has greater potential. Character communicates respect.
 
+# 7 - The Law of Respect: People Naturally follow Leaders Stronger Than Themselves
+
+People follow others whose their leadership they respect. The more leadership ability a person has, the more quickly he can recognize leadership, or lack thereof, in others.
+
+What causes people to follow others:
+- Natural leadership ability
+- S/He respect others.
+- S/He has courage and is willing to stand alone sometimes.
+- S/He has a track record of successes.
+- S/He is loyal.
+- S/He is valuable to others.
+
+One way to measure your respect is the caliber of people who follow you and how committed they are to a change or action you implement. They way people rally around you is a guage of your leadership ability.
+
+# 8 - The Law of Intuition: Leaders follow Evaluate everything with a Leadership Bias
+
+They have a good read-react instinct. They evaluate the landscape and can read a situation even without all the facts. They look at the big picture and see where things are headed. They know what they can use as resources and how to use their men properly to their strengths. 
+
+### To Your Life
+- Determine where your natural talents lie. How well are your instincts in these areas? How do you know when you're instinctively right?
+- Learn how to read people. 
+- Think in terms of mobilizing people and resources for a goal. Who are the best people to take this on? What resources can help us? How much will this cost? How can I motivate the team to success?
+
+# 9 - The Law of Magnetism: Who You are is who You Attract
+
+People you attract are people who share your values and your attitude and similar background. 
+
+### To Your Life
+- Write down a list of characteristics you want your followers and team to have. Now put a check on each characteristic that you have yourself. Based on the discrepencies, you may need to grow in some areas yourself. If you're already happy with the team you have, to go to the next level is by figuring out what your weaknesses are and then staffing them with others who excel in that area.
+
+# 10 - The Law of Connection: Leaders touch your heart before they ask for a hand.
+
+
+
+
+
+
+
 
 
 
